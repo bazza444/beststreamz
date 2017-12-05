@@ -1,2 +1,0 @@
-# beststreamz
-IPTV
